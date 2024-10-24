@@ -1,0 +1,1 @@
+# SMART_AGRICULTURE_SYSTEM_mini_project
